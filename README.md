@@ -1,1 +1,1 @@
-# NewPak
+Edvīns Rupeiks
